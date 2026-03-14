@@ -120,5 +120,5 @@ Punjabi
 
 I am always interested in **scientific discussions, collaborative research opportunities, and interdisciplinary projects in genomics and bioinformatics**.
 
-Email: [nehasuryavanshi709@gmail.com](mailto:nehasuryavanshi709@gmail.com)
+Email: [nehasuryavanshi85001@gmail.com](mailto:nehasuryavanshi85001@gmail.com)
 LinkedIn: [www.linkedin.com/in/neha-suryavanshi-14223a2a4](http://www.linkedin.com/in/neha-suryavanshi-14223a2a4)
